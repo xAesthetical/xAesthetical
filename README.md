@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @xAesthetical
+- 👀 I’m interested in discord bot developing
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on other discord bots.
+- 📫 How to reach me ... My dms are always opened. If you have any doubts, dm Aesthetical#7251 on discord!
+- Discord: https://dsc.gg/rockethelp
